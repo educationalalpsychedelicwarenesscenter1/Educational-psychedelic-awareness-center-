@@ -11,7 +11,7 @@ We provide evidence-based resources for parents, educators, and families to supp
 
 ## 🔗 Full Resource Library
 Read our complete family guides and educational articles here:
-👉 https://educationalpsychedelicawarenesscenter.blogspot.com/family-guide
+👉 https://educationalpsychedelicawarenesscenter.blogspot.com
 
 This project is for educational purposes only and does not provide medical advice.
 
